@@ -1,0 +1,2 @@
+# SosyeteTrend
+Sosyete Trend
